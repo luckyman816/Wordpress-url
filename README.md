@@ -1,5 +1,5 @@
 My shopify experience is follow as:
-https://sassandcobody.com.au/ br
+https://sassandcobody.com.au/  \r\n
 https://www.tappancollective.com/ 
 https://shocksurplus.com/
 https://www.lelixir.men/ 
